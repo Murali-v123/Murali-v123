@@ -1,5 +1,5 @@
 # 💫 About Me:
-🖐I'm Murali.V<br>🎓B.E(AIML)<br>🔭I'm currently studying as a student<br>🌱I'm currently exploring web,dsa,pyhton<br>💬Ask me about<br>⚡Fun fact i love exploring all fields
+🖐I'm Murali.V<br>🎓B.E(AIML)<br>🔭I'm currently studying as a student<br>🌱I'm currently exploring web,dsa,pyhton<br>💬Ask me about<br>⚡Fun fact i love exploring all Technolgies
 
 
 ## 🌐 Socials:
